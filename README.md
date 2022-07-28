@@ -2,7 +2,6 @@
 Codium Algorithm, We Provide Strong Encryption, And Stable Crypter, And Weekly-Daily Updates.
 
 
-Visit :
 
 
 Scan Results : https://antiscan.me/scan/new/result?id=YCDwZZVxMgHY
