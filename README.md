@@ -3,7 +3,7 @@ Codium Algorithm, We Provide Strong Encryption, And Stable Crypter, And Weekly-D
 
 
 Visit :
-https://codiumsecurity.com/
+
 
 Scan Results : https://antiscan.me/scan/new/result?id=YCDwZZVxMgHY
 
